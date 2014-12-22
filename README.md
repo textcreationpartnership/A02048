@@ -36,46 +36,48 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A direction for the health of magistrates and studentes Namely suche as bee in their consistent age,
+
+1. To the Right honorable Maiſter Francis Walſyngham Eſquier, one of the Principall Secretaries to the Duéenes moſte excellent Maieſtie, and of hir Maieſties moſte honorable priuie Counſell.
+
 #####Body#####
+The Preface.THAT MY MEAnyng and ordre wherein I purpoſe in this lytle Booke to procéede, may bée to 
+    _ The Preface.
 
-1. The Preface.
+    _ Of Exerciſe and Labour.
 
-1. Of Exerciſe and Labour.
+    _ Of Bathes.
 
-1. Of Bathes.
+    _ Of Meates
 
-1. Of Meates
+    _ Of Bread.
 
-1. Of Bread.
+    _ Of VVine.
 
-1. Of VVine.
+    _ Of Fleaſh.
 
-1. Of Fleaſh.
+    _ Of Fishe.
 
-1. Of Fishe.
+    _ Of Sauces.
 
-1. Of Sauces.
+    _ Of Grayne, Pulſe, Rotes, & Herbes
 
-1. Of Grayne, Pulſe, Rotes, & Herbes
+    _ Of Fruites
 
-1. Of Fruites
+    _ Of Repletion
 
-1. Of Repletion
+    _ Of Emptines.
 
-1. Of Emptines.
+    _ Of Purgation by ſiege or other wiſe.
 
-1. Of Purgation by ſiege or other wiſe.
+    _ Of Sleepe.
 
-1. Of Sleepe.
+    _ Of the Accidentes and affections of the minde.
 
-1. Of the Accidentes and affections of the minde.
+    _ Of Venery or the Acte of Generation.
 
-1. Of Venery or the Acte of Generation.
+    _ Of Ayre Holſome and vnholſome.
 
-1. Of Ayre Holſome and vnholſome.
-
-1. The whole Summe of holeſome diette.
+    _ The whole Summe of holeſome diette.
 
 **Types of content**
 
